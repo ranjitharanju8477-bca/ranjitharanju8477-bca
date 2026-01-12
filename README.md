@@ -1,3 +1,2 @@
-## Hi there 👋
+## Hi I'm Ranjitha
 
-Hi I'm Ranjitha
